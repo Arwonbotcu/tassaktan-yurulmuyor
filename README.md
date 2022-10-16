@@ -1,2 +1,1 @@
-# tassaktan-yurulmuyor
-sikimi taşşağıma sürüp bot paylaşıcam 😮
+# DUR HIRSIZ YAZICAM
